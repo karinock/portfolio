@@ -1,2 +1,0 @@
-# portfolio
-My marketing portfolio
